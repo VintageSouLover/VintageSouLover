@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Janet Nyabuto.
 - 👀 I’m interested in Medicine. And yes, i love Vintage Wear too!
-- 🌱 I’m currently learning a learning technique (Feynman Technique), how to code.
+- 🌱 I’m currently learning a learning technique (Feynman Technique) and how to code.
 - 💞️ I’m looking to collaborate on a Virtual Medical Startup and Website Creation.
 - 📫 How to reach me is through my email: janetnyabuto9@gmail.com
 - 🖐 Bye now. 
